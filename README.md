@@ -3,9 +3,8 @@
 ## Série A
 
 **A001 - Octobre-décembre 2005**
-Jean Renoir / Pierre et Claude Renoir / Michael Caine / David Cronenberg / Douglas Sirk / Louis Malle documentariste / Walter Hill / Les géants de l'Ouest
-
 (NB : PDF manquant)
+Jean Renoir / Pierre et Claude Renoir / Michael Caine / David Cronenberg / Douglas Sirk / Louis Malle documentariste / Walter Hill / Les géants de l'Ouest
 
 **A002 - Janvier-février 2006**
 Isabelle Huppert / Les 110 ans de la Shōchiku / Roberto Rossellini / Anthony Mann (1re partie) / Le polar français (1re partie)
@@ -30,3 +29,10 @@ L'image d'après (1re partie) / Catherine Deneuve / Les 100 ans de la Nordisk / 
 
 **A009 - Juin-août 2007**
 L'image d'après (2e partie) / Les 100 ans d'Éclair / 46e Semaine internationale de la critique / Joaquim Pedro de Andrade / Terence Fisher / Preston Sturges / Le cinéma de cape et d'épée
+
+**A010 - Septembre-novembre 2007**
+(NB : PDF manquant)
+Sacha Guitry (1re partie) / Yasuzō Masumura / Sidney Lumet / Ida Lupino / ShanghaÏ, années 30 et 40 / Gus Van Sant / Un demi-siècle de cinéma d'animation en France (1892-1948) Humphrey Jennings / Pierre Schoendorffer / Fantômes (1re partie)
+
+**A011 - Décembre 2007-février 2008**
+Sacha Guitry (2e partie) / Howard Hawks / Africamania / Le cinéma et la Shoah / Jeanne Moreau / Fantômes (2e partie) / Aventures africaines
