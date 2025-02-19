@@ -27,7 +27,7 @@ King Vidor (1re partie) / Benoît Jacquot / Antoine Duhamel / Hubert Cornfield /
 **A008 - Mars-mai 2007**
 L'image d'après (1re partie) / Catherine Deneuve / Les 100 ans de la Nordisk / Raoul Coutard / Rouben Mamoulian / Alexandre Sokourov / Robert et Raymond Hakim / King Vidor (2e partie) / Le cinéma d'espionnage (2e partie)
 
-**A009 - Juin-août 2007**
+**A009 - Juin-juillet 2007**
 L'image d'après (2e partie) / Les 100 ans d'Éclair / 46e Semaine internationale de la critique / Joaquim Pedro de Andrade / Terence Fisher / Preston Sturges / Le cinéma de cape et d'épée
 
 **A010 - Septembre-novembre 2007**
@@ -36,3 +36,5 @@ Sacha Guitry (1re partie) / Yasuzō Masumura / Sidney Lumet / Ida Lupino / Shang
 
 **A011 - Décembre 2007-février 2008**
 Sacha Guitry (2e partie) / Howard Hawks / Africamania / Le cinéma et la Shoah / Jeanne Moreau / Fantômes (2e partie) / Aventures africaines
+
+**A012 - 2008**
