@@ -45,15 +45,14 @@ Cinéditions / Georges Méliès / Hommage à madame Kawakita / Semaine internati
 **A014 - Septembre-novembre 2008**  
 Dennis Hopper / Mitchell Leisen / Spike Lee / Pierre Lhomme / Juliette Binoche / Le regard d'André Bazin (HPC)
 
-(À continuer)
+(À continuer )
 
 ## Série D
 
 **D001 (152) - Septembre-novembre 2023**  
-Víctor Erice / Raoul Walsh / Pascal Thomas / Catherine Breillat / American Fringe 7 / David Fincher / Mexico maleficarum / Jerry Lewis, cinéaste / Cinéma et mode, 20 indispensables / Jean Cocteau / Cédric Kahn / Viva Varda ! / Kim Jee-woon / D. W. Griffith / Histoire(s) du cinéma
+Viva Varda ! / Raoul Walsh / Cinéma et mode, 20 indispensables / Víctor Erice / Histoire(s) du cinéma / Catherine Breillat / Cédric Kahn / Pascal Thomas / David Fincher / Mexico maleficarum / Kim Jee-woon / Jerry Lewis, cinéaste / Jean Cocteau / American Fringe 7 / D. W. Griffith
 
 **D002 (158) - Décembre 2023-février 2024**  
-(PDF à ajouter)
 Richard Fleischer / Gérardmer à Paris / Viva Varda ! / Roberto Rossellini / Claude Autant-Lara / Claude Miller / Boris Barnet / Barbet Schroeder / La comédie hollywoodienne classique, 25 indispensables / Aki Kaurismäki / Arthur Penn / Le cinéma d'horreur, 25 indispensables / David Lean / Bertrand Bonello / Straub-Huillet / Sofia Coppola
 
 **D003 (163) - Mars-mai 2024**  
